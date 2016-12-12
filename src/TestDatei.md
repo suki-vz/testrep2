@@ -1,4 +1,4 @@
-Denis Suki
+Hier:Denis Suki
 Hallo mein Name ist
 Weit hinten, hinter den Wortbergen, fern der Länder
 Vokalien und Konsonantien leben die Blindtexte. 
@@ -23,3 +23,5 @@ bis ihm ein paar heimtückische Werbetexter auflauerten,
 es mit Longe und Parole betrunken machten und es dann in ihre Agentur schleppten, 
 wo sie es für ihre Projekte wieder und wieder mißbrauchten. Und wenn es nicht umgeschrieben wurde,
 dann benutzen Sie es immernoch.
+
+Und das ist das Ende vom feinsten
